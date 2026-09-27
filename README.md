@@ -13,20 +13,6 @@ The room comes with an **attached balcony, AC, cupboards**, and a **personal was
 
 The flat is already set up and has a chill, easy-going vibe.
 
----
-
-## 📸 Take a Look
-
-![Flat 1](./IMG_1217.jpg)
-![Room 4](./IMG_1216.jpg)
-![Flat 2](./IMG_1218.jpg)
-![Flat 3](./IMG_1219.jpg)
-![Flat 4](./IMG_1223.jpg)
-![Flat 5](./IMG_1349.jpg)
-![Room 1](./IMG_1166.JPG)
-![Room 2](./IMG_1167.JPG)
-![Room 3](./IMG_1168.JPG)
-
 
 ---
 
